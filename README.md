@@ -1,1 +1,0 @@
-# Parshakova_Yulya
